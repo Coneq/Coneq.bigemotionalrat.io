@@ -1,1 +1,0 @@
-# Coneq.bigemotionalrat.io
